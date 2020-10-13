@@ -1,1 +1,1 @@
-go to longboi and him view raw
+go to longboi and hit view raw
